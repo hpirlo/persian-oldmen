@@ -1,15 +1,9 @@
 
-* [خوارشو دریاب]()
+* [خوارشو دریاب](https://www.youtube.com/watch?v=R9Oh3_ZeFYQ)
 
-https://www.youtube.com/watch?v=R9Oh3_ZeFYQ
-* 
-  
+* [یک یکشون](https://www.youtube.com/watch?v=32UFvHPdHEQ) 
+      
+* [استاد قلمزنی، احمد مصری پور](https://www.youtube.com/watch?v=nqxcFISLmIc) 
 
-[یک یکشون] اونایی که در خط امام نسیتن، خون شهدا رو پایمال میکنن، کیرم تو کص خوار .
 
-[https://www.youtube.com/watch?v=32UFvHPdHEQ]
-  
-  
-  
-این کار خیلی کیری و تخمیه. دو کلوم از آخرش براتون بگم [https://www.youtube.com/watch?v=nqxcFISLmIc]  
-  
+
